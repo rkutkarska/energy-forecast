@@ -1,2 +1,2 @@
-# High penetration of renewable energy sources and power market formation for countries in energy transition: assessment via energy and price forecasting
+# High Penetration of Renewable Energy Sources and Power Market Formation for Countries in Energy Transition: Assessment via Price Analysis and Energy Forecasting
 ## Dimitrina Koeva, Ralena Kutkarska and Vladimir Zinoviev
